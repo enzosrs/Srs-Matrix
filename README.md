@@ -19,7 +19,7 @@
 
 ---
 
-## 🔥 <img src="https://img.icons8.com/color/20/fire.png"/> SRS Matrix (Premium Version)
+## 🔥  SRS Matrix (Premium Version)
 
 **Upgrade to our Premium Version & unlock powerful features:**  
 
